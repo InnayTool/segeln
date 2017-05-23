@@ -28,9 +28,9 @@ jedes Jahr ;)
 - Pesto
 - Cornflakes
 - Würstchen im Glas
-- Brot (Graubrot o.ä.)
+- Brot (Graubrot: Daniel, Max. o.ä.)
 - Kekse
-- Käse
+- Käse (Block Cheddar: Max (esse ich auch allein, wenn es nötig ist))
 - Wasser
 - Apfelschorle
 - Kaffee & Tee
