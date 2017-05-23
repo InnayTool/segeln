@@ -2,22 +2,49 @@
 jedes Jahr ;)
 
 ## Ausrüstung
- - Regenjacke
- - Regenhose
- - Mütze/Kappe
- - Handschuhe
- - Kleidung (normal)
- - Kulturbeutel
- - Schlafsack
- - Isomatte
- - Zelt
- - Kocher
- - Taschenlampe
- - Messer
- - Besteck
- - Geschirr
- - Handy **MIT NUMMERN**
- - Karten
+- Regenjacke
+- Regenhose
+- Mütze/Kappe
+- Handschuhe
+- Kleidung (normal)
+- Kulturbeutel
+- Schlafsack
+- Isomatte
+- Kopfkissen
+- Zelt
+- Wasserdichte Taschen/Säcke
+- Kocher
+- Taschenlampe
+- Messer
+- Besteck
+- Geschirr
+- Tasse
+- Schälchen
+- Handy **MIT NUMMERN**
+- Karten
+- Duschschlappen
+
+- Fahne
+- Wasserbeständige Schuhe
+- Halstuch
+- Sonnenbrille
+- Sonnenmilch
+- Mückenschutz
+- Töpfe
+- Kochmesser
+- Brettchen
+- Schalen
+- Geschirrtücher
+- Spüli
+- Spülbürste
+- Spülschale
+- Papier/Klopapier
+- Kaffeefilter, Papierfilter
+- Kaffeekanne
+- Feuerzeug
+- Iso-Kiste
+ 
+ 
  
 
 ## Verpflegung
@@ -39,7 +66,47 @@ jedes Jahr ;)
 - Mandarinen und/oder Orangen
 - Butter
 
+- Salz
+- Zucker
+- Samba/Nutella
+- Marmelade
+- Tee
+- Kaffee
+- Müsli
+- Margarine
+- H-Milch
+- BrotKäse
+- Salami-Mini-Würste, Cabanossi
+- Buko/Kräuterkäse
+- Joghurt
+
+
+- Reiskekse
+- Schokobrötchen
+- Äpfel
+- Bananen
+- Müsli-Riegel
+- Süßes: Gummibärchen, Lakritz
+- Knabberzeug: Flips/Chips, Nüsse
+
+- Spaghetti
+- Salat
+- Salatsoße
+- Dosenwürstchen
+- Tomatensoße/Ketchup
+- Joghurt
+
+## Getränke
+- 
+
+## Persöhnlich
+- Medikamente/Verbandszeug
+- Duscheuro/50ct
+- Handtücher
+- Badehose
+- Ausweis, Geld, Handy
+
 ## Links
- - http://www.wetteronline.de/wettertrend/heeg
+- http://www.wetteronline.de/wettertrend/heeg
 
 
