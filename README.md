@@ -97,7 +97,10 @@ jedes Jahr ;)
 - Joghurt
 
 ## Getränke
-- 
+- Wasser
+- Apfelschorle
+- Fanta
+- Mate
 
 ## Persöhnlich
 - Medikamente/Verbandszeug
