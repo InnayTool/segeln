@@ -102,7 +102,7 @@ jedes Jahr ;)
 - Fanta
 - Mate
 
-## Persöhnlich
+## Persönlich
 - Medikamente/Verbandszeug
 - Duscheuro/50ct
 - Handtücher
