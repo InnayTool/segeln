@@ -1,0 +1,27 @@
+# Essen mitgenommen 2019
+- Würstchen (Schwein)
+- 2x Gurke
+- Tomaten 1kg
+- Bananen
+- Tee
+- Marmelade
+- Brot
+- Pesto Rosso
+- Käse
+- Würstchen (Geflügel) im Glas/in der Dose
+- Reis  
+- H-Milch
+- Mate
+- 2 Sixpacks Wasser
+- Butter
+- irgendwas Süßes
+- Kaffee
+- Parmesan
+- Reis und Maiswaffeln
+- Honig
+- Kartoffeln (vorgekocht)
+- Eier (vorgekocht)
+- Chips
+- Salami
+- Walnusskerne
+
