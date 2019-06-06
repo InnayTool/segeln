@@ -17,4 +17,9 @@
 - Duschschlappen
 - Wasserbeständige Schuhe
 - Halstuch
-
+- Handtücher
+- Badehose?
+- Ausweis
+- Geld
+- Handy
+- Medikamente?
