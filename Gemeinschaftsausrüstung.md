@@ -1,0 +1,17 @@
+# Gemeinschaftsausrüstung
+Kocher
+scharfe Messer/Kochmesser
+Schälchen
+Karten
+Spielkarten
+Fahne
+Brettchen
+Schalen
+Geschirrtücher
+Spüli
+Spülbürste
+Spülschale
+Papier/Klopapier
+Kaffeefilter, Papierfilter
+Kaffeekanne
+Feuerzeug
