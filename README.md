@@ -111,5 +111,5 @@ jedes Jahr ;)
 
 ## Links
 - http://www.wetteronline.de/wettertrend/heeg
-
+- https://de.windfinder.com/forecast/heeg_heegermeer
 
