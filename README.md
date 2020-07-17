@@ -23,7 +23,6 @@ jedes Jahr ;)
 - Handy **MIT NUMMERN**
 - Karten
 - Duschschlappen
-
 - Fahne
 - Wasserbeständige Schuhe
 - Halstuch
@@ -65,7 +64,6 @@ jedes Jahr ;)
 - Zwiebeln
 - Mandarinen und/oder Orangen
 - Butter
-
 - Salz
 - Zucker
 - Samba/Nutella
@@ -79,8 +77,6 @@ jedes Jahr ;)
 - Salami-Mini-Würste, Cabanossi
 - Buko/Kräuterkäse
 - Joghurt
-
-
 - Reiskekse
 - Schokobrötchen
 - Äpfel
@@ -88,7 +84,6 @@ jedes Jahr ;)
 - Müsli-Riegel
 - Süßes: Gummibärchen, Lakritz
 - Knabberzeug: Flips/Chips, Nüsse
-
 - Spaghetti
 - Salat
 - Salatsoße
